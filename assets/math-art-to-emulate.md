@@ -1,0 +1,1 @@
+# Mathematics Artworks To Emulate
